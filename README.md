@@ -1,4 +1,3 @@
 # Reaction-Pics
-Huge library of my personal reaction pics. I'm truly sorry.
-
-WELCOME TO RETROFRIES REACTION PIC LIBRARY! FEEL FREE TO TAKE SOME. THIS TOOK A WHILE TO CURATE SO THANKS FOR THE SUPPORT!
+A bunch of reaction pics, because it takes too long to get them on your own.
+if you like this free library of ever updating reaction pics, great. good for you.
